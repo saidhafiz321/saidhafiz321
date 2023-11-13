@@ -9,4 +9,4 @@ Great to learn more about you! Here's an updated set of details and a fun fact f
 - 💬 Ask me about film theory, social media, politics, or anything related to programming!
 - 📫 How to reach me: saidhafiz321@gmail.com
 - 😄 Pronouns: She/Her
--⚡ Fun fact: I love coding! Whether it's diving into a new programming language or building innovative tech solutions, I find joy in the world of programming. Also, I enjoy swimming and playing badminton in my free time. Feel free to ask me anything about programming!
+- ⚡ Fun fact: I love coding! Whether it's diving into a new programming language or building innovative tech solutions, I find joy in the world of programming. Also, I enjoy swimming and playing badminton in my free time. Feel free to ask me anything about programming!
